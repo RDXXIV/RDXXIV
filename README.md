@@ -9,7 +9,7 @@
 
 - 📄 Know about my experiences [https://flowcv.com/resume/pevwad9rpl90](https://flowcv.com/resume/pevwad9rpl90)
 
-- ⚡ Fun fact **I like anime**
+- ⚡ Fun fact **I like anime and soccer**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
